@@ -50,3 +50,7 @@ and it will continue to increase; day by day (*paṭidina*) it will keep growing
 ---
 
 *Source: Minor Rock Edict of Emperor Ashoka (Devanampiya Piyadasi)*
+
+Pali from "Edictts of King Aśoka, a new vision. Meena Talim. Copyrighted.
+
+Pali translation based on PTS PED and personal inclination. English translation CC BY-NC-SA 4.0.
