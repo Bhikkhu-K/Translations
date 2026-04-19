@@ -1,3 +1,6 @@
+---
+---
+
 # Gāvimaṭh (Koppal) version of Ashoka's Minor Rock Edict No. 1
 
 **Pali Text**  
