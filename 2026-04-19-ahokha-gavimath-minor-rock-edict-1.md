@@ -21,7 +21,7 @@ But indeed I was not very zealous at first.
 Only after more than a year, when I had served the Saṅgha, then my zeal was made very strong.
 
 **so imāya velāya Jambudīpamhi amissā devā samānehi manussehi, so idāni missaṃ katā**  
-At that time in Jambudīpa, the heavenly beings (*deva*) were not mixed with mankind (*manussa*). Now they have been made to mixed.
+At that time in Jambudīpa, the heavenly beings (*deva*) were not mixed with mankind (*manussa*). Now they have been made to mix.
 
 **Parakkamassa eso phalaṃ**  
 This is the fruit of effort (*parakkama*).
